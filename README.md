@@ -1,0 +1,1 @@
+# wasted0603.github.io
